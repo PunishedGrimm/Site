@@ -1,1 +1,1 @@
-![Dark Souls](https://i.imgur.com/pIfJNfu.gif)
+![Dark Souls](https://i.ibb.co/7tD12Sm/chrome-capture.gif)
